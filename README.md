@@ -1,5 +1,5 @@
 # Integracion-de-Pi
-En una aventura extraordinaria, película que ya desde la trama se invita a prestar una mirada desde una significacion religiosa. Se podría realizarlo también casi de punta  a punta del film, un análisis desde una línea también psicoantropológica. 
+En una aventura extraordinaria, película que ya desde la trama se invita a prestar una mirada desde una significacion religiosa. Se podría realizarlo también casi de punta  a punta del film, un análisis desde una línea también psicoanalítica.
 Pi era un niño con ciertas idealizaciones sobre el mundo animal. Por lo que su padre decide en una repentina y dramática  forma de enseñanza demostrarle los riesgos y devolverlo a una bruta realidad. Luego de sufrir un desengaño a su idealización sobre el mundo animal salvaje, el protagonista rechaza su costado animal y se refugia disociativamente en su costado civilizado. El animal interno es reprimido.
 Pero reaparece, y lo que lo posibilita es el naufragio del mundo civilizado, y por lo tanto del ambiente cotidiano que le proveía constantemente los espejos para reflejarse como ser social y celestial.
 Esta situación trágica hace entrar en crisis su falsa civilización interna, que mantenía en represión y ocultamiento, su costado salvaje para si.
